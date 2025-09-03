@@ -12,7 +12,7 @@
 - 🌟 Actively engaged in the tech community through collaborations and personal projects
 
 - 💬 Connect with me on LinkedIn: [Yasmen Gumama](https://www.linkedin.com/in/yasmeng/)
-- 📧 Email me at yasmeng@example.com
+- 📧 Email me at yasmen.gumama@g.msuiit.edu.ph
 
 ---
 
